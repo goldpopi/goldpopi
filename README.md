@@ -1,5 +1,7 @@
 ### Hi there 👋
-
+I love art and NFT.
+NFT Collector,  Crypto Investor 💸
+Ambassador 💡Degen 💡
 <!--
 **goldpopi/goldpopi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
